@@ -4,5 +4,4 @@ dobavigi oshte nqshot
 
 dobavih
 
-
-
+sega veche i ot laptof i ot kompa moga xaha

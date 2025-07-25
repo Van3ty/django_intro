@@ -5,3 +5,6 @@ dobavigi oshte nqshot
 dobavih
 
 sega veche i ot laptof i ot kompa moga xaha
+
+nau4ix pull komanda
+

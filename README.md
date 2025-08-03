@@ -8,3 +8,5 @@ sega veche i ot laptof i ot kompa moga xaha
 
 nau4ix pull komanda
 
+ligavnq malko sega
+
